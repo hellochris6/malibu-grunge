@@ -1,4 +1,4 @@
-#### Alex Hormozi Inspired Style & Grooming Guide for Men
+#### Alex Hormozi Inspired Style Guide for Men + Grooming
 
 #### Malibu grunge. 
 #### Utilitarian surf-core. 
