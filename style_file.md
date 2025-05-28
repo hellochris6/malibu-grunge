@@ -1,6 +1,7 @@
 #### Alex Hormozi Inspired Style Guide for Men + Grooming Routine
 
 ##### Malibu grunge; Utilitarian surf-core 
+##### (silhouettes, function, simplicity)
 
 ##### Overview  
 This guide offers a simple, functional wardrobe and grooming system designed for all men, with special attention to shorter, thicker frames and trans/masc men. Inspired by efficiency, durability, and thoughtful simplicity, it aims to help you build confidence through purposeful style.
@@ -32,6 +33,7 @@ Each piece earns its place by function, durability, and fit — no excess. Inspi
 - Helly Hansen
 - Salomon 
 - Chacos
+- Crocs
 - Hanes / Calvin Klein / Vivian Ramsay 
 
 ---
