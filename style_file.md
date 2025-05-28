@@ -44,6 +44,7 @@ A simple shaving routine replacing traditional after-shave creams:
 - Bambaw Single Razor (eco-friendly)  
 - Ingrown Hairs Tonic by Topicals
 - Ice cube applied immediately after shaving to reduce irritation  
+- Bonus: Miswak, Sensodyne
 
 ---
 
