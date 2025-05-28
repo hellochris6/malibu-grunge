@@ -16,7 +16,9 @@ This guide offers a simple, functional wardrobe and grooming system designed for
 
 ##### Wardrobe Highlights  
 - Color Palette: Black, White, Gray, Earth Tones, Blues (Royal, Navy), Camo (sparingly)
+
 - Base Layers: Hanes tanks, Carhartt Double Knee pants, Levi’s 501 (alternate)  
+
 - Outerwear: Levi’s Trucker Jacket (custom cut), hoodies, rain jackets  
 - Shoes: Black Tabi Boots, Brown Cowboy Boots, XT-6s, Penny Loafers, Chacos  
 - Accessories: Minimal gold jewelry, trucker hats, bandanas, utility belts  
