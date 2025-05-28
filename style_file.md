@@ -17,7 +17,7 @@ Each piece earns its place by function, durability, and fit — no excess. Inspi
 ##### Core Wardrobe Items  
 - Color Palette: Black, White, Gray, Earth Tones, Blues (Royal, Navy), Camo (sparingly)
 - Base Layers: Hanes tanks, Carhartt Double Knee pants, Levi’s 501 (alternate)  
-- Outerwear: Levi’s Trucker Jacket (custom cut), hoodies, rain jackets (Helly Hansen)
+- Outerwear: Levi’s Trucker Jacket (custom cut), hoodies, rain jackets
 - Shoes: Black Tabi Boots, Brown Cowboy Boots, XT-6s, Penny Loafers, Chacos  
 - Accessories: Minimal gold jewelry, trucker hat, bandana, leather belt (or shoe string)
 
