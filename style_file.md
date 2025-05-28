@@ -9,6 +9,7 @@ This guide offers a simple, functional wardrobe and grooming system designed for
 
 ##### Core Philosophy  
 > *“Simplicity is the ultimate sophistication.”*  
+>
 > Each piece earns its place by function, durability, and fit — no excess.
 
 ---
