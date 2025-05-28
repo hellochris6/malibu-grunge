@@ -8,7 +8,8 @@ This guide offers a simple, functional wardrobe and grooming system designed for
 ---
 
 ##### Core Philosophy  
-> *“Simplicity is the ultimate sophistication.”*  
+Inspired by the belief that true efficiency lies in thoughtful simplicity: 
+> *“Simplicity is the ultimate sophistication.” - Steve Jobs*  
 >
 > Each piece earns its place by function, durability, and fit — no excess.
 
@@ -17,9 +18,23 @@ This guide offers a simple, functional wardrobe and grooming system designed for
 ##### Core Wardrobe Items  
 - Color Palette: Black, White, Gray, Earth Tones, Blues (Royal, Navy), Camo (sparingly)
 - Base Layers: Hanes tanks, Carhartt Double Knee pants, Levi’s 501 (alternate)  
-- Outerwear: Levi’s Trucker Jacket (custom cut), hoodies, rain jackets  
+- Outerwear: Levi’s Trucker Jacket (custom cut), hoodies, rain jackets (Helly Hansen)
 - Shoes: Black Tabi Boots, Brown Cowboy Boots, XT-6s, Penny Loafers, Chacos  
-- Accessories: Minimal gold jewelry, trucker hats, bandanas, utility belts (or shoe string)
+- Accessories: Minimal gold jewelry, trucker hat, bandana, leather belt (or shoe string)
+
+---
+
+##### Brands: 
+- Levi’s
+- Carhartt
+- Birdwell
+- Dickies
+- Patagonia 
+- Gardenheir
+- Helly Hansen
+- Salomon 
+- Chacos
+- Hanes / Calvin Klein / Vivian Ramsay 
 
 ---
 
