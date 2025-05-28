@@ -8,10 +8,8 @@ This guide offers a simple, functional wardrobe and grooming system designed for
 ---
 
 ##### Core Philosophy  
-Inspired by the belief that true efficiency lies in thoughtful simplicity: 
-> *“Simplicity is the ultimate sophistication.” - Steve Jobs*  
->
-> Each piece earns its place by function, durability, and fit — no excess.
+Each piece earns its place by function, durability, and fit — no excess. Inspired by the belief that true efficiency lies in thoughtful simplicity: 
+> *“Simplicity is the ultimate sophistication.” - Steve Jobs* 
 
 ---
 
