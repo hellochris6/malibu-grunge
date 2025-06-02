@@ -45,4 +45,4 @@ A simple shaving routine (replacing traditional after-shave creams):
  * Bambaw Single Razor
  * Ice cube (applied immediately after shaving to reduce irritation)
  * Ingrown Hairs Tonic by Topicals
- * Bonus: Miswak, Sensodyne
+ * Bonus: Miswak, Sensodyne, First Aid Beauty (FAB) Pure Skin Facial Cleanser 
