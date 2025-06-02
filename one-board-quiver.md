@@ -1,5 +1,5 @@
 ---
-### 1-Board Quiver
+### Surfhood & the 1-Board Quiver
 
 For what it’s worth, the idea isn’t about being a purist. 
 
