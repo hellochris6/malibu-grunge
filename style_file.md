@@ -40,8 +40,9 @@ Each piece earns its place by function, durability, and fit — no excess. Inspi
 
 ##### Grooming Routine  
 A simple shaving routine replacing traditional after-shave creams:  
-- Gillette Sensitive Skin shaving cream  
-- Bambaw Single Razor (eco-friendly)  
-- Ingrown Hairs Tonic by Topicals
-- Ice cube applied immediately after shaving to reduce irritation  
-- Bonus: Miswak, Sensodyne
+ * The Ordinary AHA 30% + BHA 2% Peeling Solution (twice a week, before showering)
+ * Gillette Sensitive Skin shaving cream (after showering)
+ * Bambaw Single Razor
+ * Ice cube (applied immediately after shaving to reduce irritation)
+ * Ingrown Hairs Tonic by Topicals
+ * Bonus: Miswak, Sensodyne
