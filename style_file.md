@@ -1,7 +1,7 @@
 #### Alex Hormozi Inspired Style Guide for Men + Grooming Routine
 
 ##### Malibu grunge; Utilitarian surf-core 
-##### (silhouettes, function, simplicity)
+##### (silhouette, function, simplicity)
 
 ##### Overview  
 This guide offers a simple, functional wardrobe and grooming system designed for all men, with special attention to shorter, thicker frames and trans/masc men. Inspired by efficiency, durability, and thoughtful simplicity, it aims to help you build confidence through purposeful style.
@@ -45,21 +45,3 @@ A simple shaving routine replacing traditional after-shave creams:
 - Ingrown Hairs Tonic by Topicals
 - Ice cube applied immediately after shaving to reduce irritation  
 - Bonus: Miswak, Sensodyne
-
----
-
-##### Usage  
-Feel free to use this guide as a personal style and grooming reference. It is designed to be straightforward and adaptable.
-
----
-
-© 2025 Chris Blue. All rights reserved.  
-This content is the intellectual property of Chris Blue and may not be used or reproduced without permission.
-
-Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License
-
-By exercising the Licensed Rights (defined below), You accept and agree to be bound by the terms and conditions of this Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International Public License ("Public License").
-
-To view a copy of this license, visit http://creativecommons.org/licenses/by-nc-nd/4.0/
-
-© 2025 Chris Blue. All rights reserved.
