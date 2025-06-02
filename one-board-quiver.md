@@ -7,4 +7,4 @@ It’s a response to overconsumption, rooted in sustainability and simplicity. T
 
 Boards like the CI Mid or Grant Noble’s Wilbur and Homesick shapes exemplify this as being versatile, durable, and honest. They’re typically a mid-to-almost log length, 2+1 setups. 
 
-Think about it like this— the 1-board quiver is an experiment prioritizing **surfhood** and style in the water. It's an experience which doesn’t demand perfection because its about finding more in less. 
+Think about it like this— the 1-board quiver is an experiment prioritizing **surfhood** and style in the water. It's not for everyone. It's an experience which doesn’t demand perfection because its about finding more in less. 
