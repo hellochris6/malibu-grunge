@@ -9,4 +9,4 @@ Boards like the CI Mid or Grant Noble’s Wilbur and Homesick shapes exemplify t
 
 Think about it like this— the 1-board quiver is an experiment prioritizing **surfhood** and style in the water. It's not for everyone. It's an experience which doesn’t demand perfection because its about finding more in less. 
 
-[Sterling and Yancy Spencer](https://youtube.com/shorts/eNc1rf2AQJc?si=67D0YvRSQ8-kLxNv) discuss the style being developed by starting out with a challenging single fin surfboard.
+[Sterling and Yancy Spencer](https://youtube.com/shorts/eNc1rf2AQJc?si=67D0YvRSQ8-kLxNv) discuss the benefit of starting out with a challenging single-fin surfboard.
