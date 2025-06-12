@@ -11,4 +11,4 @@ Think about it like this— the 1-board quiver is an experiment prioritizing **s
 
 [Sterling and Yancy Spencer](https://youtube.com/shorts/eNc1rf2AQJc?si=67D0YvRSQ8-kLxNv) discuss the benefit of starting out with a challenging single-fin surfboard.
 
-[Devon Howard on the CI-Mid](https://youtu.be/gIINKRF7i08?si=bLGazqmRCSpHF841) dicusses fin placement, namely, 2+1 setup, True Ames and the finjak. 
+[Devon Howard on the CI-Mid](https://youtu.be/gIINKRF7i08?si=bLGazqmRCSpHF841) and fin placement, namely, 2+1 setup, True Ames and the finjak. 
