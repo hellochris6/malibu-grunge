@@ -41,7 +41,7 @@ Each piece earns its place by function, durability, and fit — no excess. Inspi
 ##### Grooming Routine  
 A simple shaving routine (replacing traditional after-shave creams):  
  * The Ordinary AHA 30% + BHA 2% Peeling Solution (twice a week, before showering)
- * Gillette Sensitive Skin shaving cream (after showering)
+ * Gillette Sensitive Skin shaving cream (during or after shower)
  * Bambaw Single Razor
  * Ice cube (applied immediately after shaving to reduce irritation)
  * Ingrown Hairs Tonic by Topicals
